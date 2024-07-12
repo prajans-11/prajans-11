@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Iam enthusiastic in doing UI design and analysis the raw data and making it virtual analysis**
 
-- 📫 How to reach me **prajan.cs22@bitsathy.ac.in**
+- 📫 How to reach me **prajanpvt@gmail.com**
 
 - ⚡ Fun fact **I think iam funny!**
 
